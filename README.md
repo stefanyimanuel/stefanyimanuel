@@ -1,11 +1,9 @@
-### Hello! ^^
+### Hello! ^^ 
 
-<!--
-**stefanyimanuel/stefanyimanuel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+.｡.:*☆*:.｡. 𝙄'𝙢 𝙖 𝙋𝙝𝙮𝙨𝙞𝙘𝙨 𝙨𝙩𝙪𝙙𝙚𝙣𝙩 𝙖𝙩 𝘽𝙖𝙣𝙙𝙪𝙣𝙜 𝙄𝙣𝙨𝙩𝙞𝙩𝙪𝙩𝙚 𝙤𝙛 𝙏𝙚𝙘𝙝𝙣𝙤𝙡𝙤𝙜𝙮 .｡.:*☆*:.｡.
 
+𝙄'𝙢 𝙡𝙤𝙤𝙠𝙞𝙣𝙜 𝙛𝙤𝙧𝙬𝙖𝙧𝙙 𝙩𝙤 𝙡𝙚𝙖𝙧𝙣 𝙖𝙗𝙤𝙪𝙩 𝙥𝙧𝙤𝙜𝙧𝙖𝙢𝙢𝙞𝙣𝙜 𝙖𝙣𝙙 𝙙𝙖𝙩𝙖 𝙨𝙘𝙞𝙚𝙣𝙘𝙚𝙨! ◡̈
 
-Here are some ideas to get you started:
+𝟭𝟵 / 𝗦𝗧𝗔𝗬 / 𝗦𝗛𝗘//𝗛𝗘𝗥
 
-- ༉‧₊˚✧ I'm a Physics student at Bandung Institute of Technology
-- ˗ˏˋI'm looking forward to learn about programming and data sciences!ˎˊ˗
-- ⋆*✩⑅◡̈⃝*  19/STAY/SHE//HER
+☆彡
